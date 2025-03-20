@@ -6,7 +6,7 @@
 
 - 💬 Ask me about **Html,Css and Js**
 
-- 📫 How to reach me **ngohaibang20012020@gmail.com**
+- 📫 How to reach me **azizjonkoriev2@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
